@@ -1,2 +1,2 @@
-# Pjd-technologies
+# Recharge:Easy recharges in just click
 Recharges are a great hustle as for every recharge you need to open different portal such as DTH recharge, mobile recharge, data card recharge, etc. PJD technologies provide a one-stop solution for all recharges need.
